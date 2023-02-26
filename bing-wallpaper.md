@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-26 | [Hoodoos at Bryce Canyon National Park, Utah (© Piriya Photography/Getty Images)](https://cn.bing.com/th?id=OHR.BryceAnniv_EN-US9498074213_UHD.jpg) 
+
 2023-02-21 | [Washington Monument and Capitol Building on the National Mall, Washington, DC (© AevanStock/Shutterstock)](https://cn.bing.com/th?id=OHR.PresDayDC_EN-US2054662773_UHD.jpg) 
 
 2023-02-20 | [Humpback whales, Maui, Hawaii (© Flip Nicklin/Minden Pictures)](https://cn.bing.com/th?id=OHR.MauiWhale_EN-US1928366389_UHD.jpg) 
