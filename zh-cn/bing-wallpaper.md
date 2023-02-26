@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-27 | [北极熊在加拿大沉睡 (© David Pike/Minden Pictures)](https://cn.bing.com/th?id=OHR.PolarBearFrost_ZH-CN5918160947_UHD.jpg) 
+
 2023-02-26 | [亚马孙雨林的树冠探险，秘鲁 (© Pere Rubi/Getty Images)](https://cn.bing.com/th?id=OHR.CanopyPeru_ZH-CN5659581553_UHD.jpg) 
 
 2023-02-20 | [Itaimbezinho峡谷，巴西 (© NidoHuebl/Getty Images)](https://cn.bing.com/th?id=OHR.Itaimbezinho_ZH-CN5641449623_UHD.jpg) 
