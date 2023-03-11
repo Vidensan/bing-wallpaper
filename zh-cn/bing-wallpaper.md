@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-11 | [马萨诸塞州��洛斯特的沼泽地 (© Thomas H. Mitchell/Getty Images)](https://cn.bing.com/th?id=OHR.LongWharf_ZH-CN8793669955_UHD.jpg) 
+
 2023-03-11 | [马萨诸塞州格洛斯特的沼泽地 (© Thomas H. Mitchell/Getty Images)](https://cn.bing.com/th?id=OHR.LongWharf_ZH-CN8793669955_UHD.jpg) 
 
 2023-03-10 | [埃代尔，峰区，英国 (© John Finney/Getty Images)](https://cn.bing.com/th?id=OHR.EdaleValley_ZH-CN8464524952_UHD.jpg) 
