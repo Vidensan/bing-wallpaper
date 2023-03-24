@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-24 | [盛开的熊蒜，海尼希国家公园，德国 (© Frank Sommariva/Getty Images)](https://cn.bing.com/th?id=OHR.WildGarlic_ZH-CN6787340186_UHD.jpg) 
+
 2023-03-24 | [盛开的野蒜，海尼希国家公园，德国 (© Frank Sommariva/Getty Images)](https://cn.bing.com/th?id=OHR.WildGarlic_ZH-CN1869796625_UHD.jpg) 
 
 2023-03-24 | [盛开的野蒜，海��希国家公园，德国 (© Frank Sommariva/Getty Images)](https://cn.bing.com/th?id=OHR.WildGarlic_ZH-CN1869796625_UHD.jpg) 
