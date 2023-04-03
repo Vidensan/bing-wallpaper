@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-04 | [科尔多瓦���古罗马桥，西班牙 (© Jeremy Woodhouse/Getty Images)](https://cn.bing.com/th?id=OHR.RomanBridge_ZH-CN4699931052_UHD.jpg) 
+
 2023-04-04 | [科尔多瓦的古罗马桥，西班牙 (© Jeremy Woodhouse/Getty Images)](https://cn.bing.com/th?id=OHR.RomanBridge_ZH-CN4699931052_UHD.jpg) 
 
 2023-04-03 | [大岛上的霍瑙瑙国家历史公园，夏威夷 (© Westend61/Getty Images)](https://cn.bing.com/th?id=OHR.HonaunauNP_ZH-CN4491662962_UHD.jpg) 
