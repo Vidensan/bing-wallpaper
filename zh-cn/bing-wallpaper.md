@@ -1,7 +1,7 @@
 ## Bing Wallpaper
-2023-06-18 | [���通燕鸥父亲和宝宝，长岛，纽约州，美国 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://cn.bing.com/th?id=OHR.TernFather_ZH-CN1860589914_UHD.jpg) 
-
 2023-06-18 | [普通燕鸥父亲和宝宝，长岛，纽约州，美国 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://cn.bing.com/th?id=OHR.TernFather_ZH-CN1860589914_UHD.jpg) 
+
+2023-06-18 | [���通燕鸥父亲和宝宝，长岛，纽约州，美国 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://cn.bing.com/th?id=OHR.TernFather_ZH-CN1860589914_UHD.jpg) 
 
 2023-06-17 | [在加利福尼亚州圣地亚哥举行的“为团结划桨”活动 (© Brandon Colbert Photography/Getty Images)](https://cn.bing.com/th?id=OHR.SurfSanDiego_ZH-CN1485510748_UHD.jpg) 
 

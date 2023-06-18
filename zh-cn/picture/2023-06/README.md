@@ -1,5 +1,5 @@
 ## Bing Wallpaper (2023-06)
-![](https://cn.bing.com/th?id=OHR.TernFather_ZH-CN1860589914_UHD.jpg&w=1000)Today: [���通燕鸥父亲和宝宝，长岛，纽约州，美国 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://cn.bing.com/th?id=OHR.TernFather_ZH-CN1860589914_UHD.jpg)
+![](https://cn.bing.com/th?id=OHR.TernFather_ZH-CN1860589914_UHD.jpg&w=1000)Today: [普通燕鸥父亲和宝宝，长岛，纽约州，美国 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://cn.bing.com/th?id=OHR.TernFather_ZH-CN1860589914_UHD.jpg)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.TernFather_ZH-CN1860589914_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-18 [download 4k](https://cn.bing.com/th?id=OHR.TernFather_ZH-CN1860589914_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.TernFather_ZH-CN1860589914_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-18 [download 4k](https://cn.bing.com/th?id=OHR.TernFather_ZH-CN1860589914_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.SurfSanDiego_ZH-CN1485510748_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-17 [download 4k](https://cn.bing.com/th?id=OHR.SurfSanDiego_ZH-CN1485510748_UHD.jpg)|
