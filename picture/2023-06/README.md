@@ -1,5 +1,5 @@
 ## Bing Wallpaper (2023-06)
-![](https://cn.bing.com/th?id=OHR.SanFranHall_EN-US0993956473_UHD.jpg&w=1000)Today: [City Hall lit up for Juneteenth in San Francisco, California (�� yhelfman/Shutterstock)](https://cn.bing.com/th?id=OHR.SanFranHall_EN-US0993956473_UHD.jpg)
+![](https://cn.bing.com/th?id=OHR.SanFranHall_EN-US0993956473_UHD.jpg&w=1000)Today: [City Hall lit up for Juneteenth in San Francisco, California (© yhelfman/Shutterstock)](https://cn.bing.com/th?id=OHR.SanFranHall_EN-US0993956473_UHD.jpg)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.SanFranHall_EN-US0993956473_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-20 [download 4k](https://cn.bing.com/th?id=OHR.SanFranHall_EN-US0993956473_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.SanFranHall_EN-US0993956473_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-20 [download 4k](https://cn.bing.com/th?id=OHR.SanFranHall_EN-US0993956473_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.TernFather_EN-US0899570111_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-19 [download 4k](https://cn.bing.com/th?id=OHR.TernFather_EN-US0899570111_UHD.jpg)|
