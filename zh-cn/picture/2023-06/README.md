@@ -1,5 +1,5 @@
 ## Bing Wallpaper (2023-06)
-![](https://cn.bing.com/th?id=OHR.BanyakIslands_ZH-CN6620304821_UHD.jpg&w=1000)Today: [巴尼���群岛，苏门答腊，印度尼西亚 (© fbxx/Getty Imagesz)](https://cn.bing.com/th?id=OHR.BanyakIslands_ZH-CN6620304821_UHD.jpg)
+![](https://cn.bing.com/th?id=OHR.BanyakIslands_ZH-CN6620304821_UHD.jpg&w=1000)Today: [巴尼亚群岛，苏门答腊，印度尼西亚 (© fbxx/Getty Imagesz)](https://cn.bing.com/th?id=OHR.BanyakIslands_ZH-CN6620304821_UHD.jpg)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.BanyakIslands_ZH-CN6620304821_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-29 [download 4k](https://cn.bing.com/th?id=OHR.BanyakIslands_ZH-CN6620304821_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.BanyakIslands_ZH-CN6620304821_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-29 [download 4k](https://cn.bing.com/th?id=OHR.BanyakIslands_ZH-CN6620304821_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.ItalyCinqueTerre_ZH-CN6495965228_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-28 [download 4k](https://cn.bing.com/th?id=OHR.ItalyCinqueTerre_ZH-CN6495965228_UHD.jpg)|
