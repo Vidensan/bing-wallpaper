@@ -1,7 +1,7 @@
 ## Bing Wallpaper
-2023-07-06 | [南跳岩企鹅，福克兰群�� (© Tony Beck/Getty Images)](https://cn.bing.com/th?id=OHR.KissingPenguins_ZH-CN5449471262_UHD.jpg) 
-
 2023-07-06 | [南跳岩企鹅，福克兰群岛 (© Tony Beck/Getty Images)](https://cn.bing.com/th?id=OHR.KissingPenguins_ZH-CN5449471262_UHD.jpg) 
+
+2023-07-06 | [南跳岩企鹅，福克兰群�� (© Tony Beck/Getty Images)](https://cn.bing.com/th?id=OHR.KissingPenguins_ZH-CN5449471262_UHD.jpg) 
 
 2023-07-05 | [蒂莫尼港海滩，科孚岛，希腊 (© nantonov/Getty Images)](https://cn.bing.com/th?id=OHR.CorfuBeach_ZH-CN8660068587_UHD.jpg) 
 

@@ -1,5 +1,5 @@
 ## Bing Wallpaper (2023-07)
-![](https://cn.bing.com/th?id=OHR.KissingPenguins_ZH-CN5449471262_UHD.jpg&w=1000)Today: [南跳岩企鹅，福克兰群�� (© Tony Beck/Getty Images)](https://cn.bing.com/th?id=OHR.KissingPenguins_ZH-CN5449471262_UHD.jpg)
+![](https://cn.bing.com/th?id=OHR.KissingPenguins_ZH-CN5449471262_UHD.jpg&w=1000)Today: [南跳岩企鹅，福克兰群岛 (© Tony Beck/Getty Images)](https://cn.bing.com/th?id=OHR.KissingPenguins_ZH-CN5449471262_UHD.jpg)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.KissingPenguins_ZH-CN5449471262_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-07-06 [download 4k](https://cn.bing.com/th?id=OHR.KissingPenguins_ZH-CN5449471262_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.KissingPenguins_ZH-CN5449471262_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-07-06 [download 4k](https://cn.bing.com/th?id=OHR.KissingPenguins_ZH-CN5449471262_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.CorfuBeach_ZH-CN8660068587_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-07-05 [download 4k](https://cn.bing.com/th?id=OHR.CorfuBeach_ZH-CN8660068587_UHD.jpg)|
