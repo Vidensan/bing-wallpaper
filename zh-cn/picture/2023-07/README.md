@@ -1,5 +1,5 @@
 ## Bing Wallpaper (2023-07)
-![](https://cn.bing.com/th?id=OHR.SomersetLavender_ZH-CN5823464763_UHD.jpg&w=1000)Today: [萨默塞特���的薰衣草田，英国 (© Doug Chinnery/Getty Images)](https://cn.bing.com/th?id=OHR.SomersetLavender_ZH-CN5823464763_UHD.jpg)
+![](https://cn.bing.com/th?id=OHR.SomersetLavender_ZH-CN5823464763_UHD.jpg&w=1000)Today: [萨默塞特郡的薰衣草田，英国 (© Doug Chinnery/Getty Images)](https://cn.bing.com/th?id=OHR.SomersetLavender_ZH-CN5823464763_UHD.jpg)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.SomersetLavender_ZH-CN5823464763_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-07-10 [download 4k](https://cn.bing.com/th?id=OHR.SomersetLavender_ZH-CN5823464763_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.SomersetLavender_ZH-CN5823464763_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-07-10 [download 4k](https://cn.bing.com/th?id=OHR.SomersetLavender_ZH-CN5823464763_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.MoselleRiver_ZH-CN1283415242_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-07-09 [download 4k](https://cn.bing.com/th?id=OHR.MoselleRiver_ZH-CN1283415242_UHD.jpg)|
