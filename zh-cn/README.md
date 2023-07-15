@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_ZH-CN6733875019_UHD.jpg&w=1000)Today: [卡斯泰尔梅扎诺，意大利 (�� Rudy Balasko/Shutterstock)](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_ZH-CN6733875019_UHD.jpg)
+![](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_ZH-CN6733875019_UHD.jpg&w=1000)Today: [卡斯泰尔梅扎诺，意大利 (© Rudy Balasko/Shutterstock)](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_ZH-CN6733875019_UHD.jpg)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_ZH-CN6733875019_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-07-15 [download 4k](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_ZH-CN6733875019_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_ZH-CN6733875019_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-07-15 [download 4k](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_ZH-CN6733875019_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.BlacktipSharks_ZH-CN6532659465_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-07-14 [download 4k](https://cn.bing.com/th?id=OHR.BlacktipSharks_ZH-CN6532659465_UHD.jpg)|
