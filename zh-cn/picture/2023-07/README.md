@@ -1,5 +1,5 @@
 ## Bing Wallpaper (2023-07)
-![](https://cn.bing.com/th?id=OHR.CrescentLake_ZH-CN8294493832_UHD.jpg&w=1000)Today: [敦煌月牙泉，甘肃��，中国 (© R7 Photo/Shutterstock)](https://cn.bing.com/th?id=OHR.CrescentLake_ZH-CN8294493832_UHD.jpg)
+![](https://cn.bing.com/th?id=OHR.CrescentLake_ZH-CN8294493832_UHD.jpg&w=1000)Today: [敦煌月牙泉，甘肃省，中国 (© R7 Photo/Shutterstock)](https://cn.bing.com/th?id=OHR.CrescentLake_ZH-CN8294493832_UHD.jpg)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.CrescentLake_ZH-CN8294493832_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-07-19 [download 4k](https://cn.bing.com/th?id=OHR.CrescentLake_ZH-CN8294493832_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.CrescentLake_ZH-CN8294493832_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-07-19 [download 4k](https://cn.bing.com/th?id=OHR.CrescentLake_ZH-CN8294493832_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.BucerosBicornis_ZH-CN7795050230_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-07-18 [download 4k](https://cn.bing.com/th?id=OHR.BucerosBicornis_ZH-CN7795050230_UHD.jpg)|
