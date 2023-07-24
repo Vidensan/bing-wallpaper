@@ -1,5 +1,5 @@
 ## Bing Wallpaper (2023-07)
-![](https://cn.bing.com/th?id=OHR.LasLagunas_ZH-CN9917702340_UHD.jpg&w=1000)Today: [托雷维耶���潟湖，阿利坎特，西班牙 (© Juan Maria Coy Vergara/Getty Images)](https://cn.bing.com/th?id=OHR.LasLagunas_ZH-CN9917702340_UHD.jpg)
+![](https://cn.bing.com/th?id=OHR.LasLagunas_ZH-CN9917702340_UHD.jpg&w=1000)Today: [托雷维耶哈潟湖，阿利坎特，西班牙 (© Juan Maria Coy Vergara/Getty Images)](https://cn.bing.com/th?id=OHR.LasLagunas_ZH-CN9917702340_UHD.jpg)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.LasLagunas_ZH-CN9917702340_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-07-25 [download 4k](https://cn.bing.com/th?id=OHR.LasLagunas_ZH-CN9917702340_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.LasLagunas_ZH-CN9917702340_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-07-25 [download 4k](https://cn.bing.com/th?id=OHR.LasLagunas_ZH-CN9917702340_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.ZebraCousins_ZH-CN8159888859_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-07-24 [download 4k](https://cn.bing.com/th?id=OHR.ZebraCousins_ZH-CN8159888859_UHD.jpg)|
