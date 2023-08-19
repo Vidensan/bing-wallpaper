@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://cn.bing.com/th?id=OHR.CameraSquirrel_ZH-CN3580119980_UHD.jpg&w=1000)Today: [看着相机镜头的松鼠 (�� Alfredo Piedrafita/Getty Images)](https://cn.bing.com/th?id=OHR.CameraSquirrel_ZH-CN3580119980_UHD.jpg)
+![](https://cn.bing.com/th?id=OHR.CameraSquirrel_ZH-CN3580119980_UHD.jpg&w=1000)Today: [看着相机镜头的松鼠 (© Alfredo Piedrafita/Getty Images)](https://cn.bing.com/th?id=OHR.CameraSquirrel_ZH-CN3580119980_UHD.jpg)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.CameraSquirrel_ZH-CN3580119980_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-08-19 [download 4k](https://cn.bing.com/th?id=OHR.CameraSquirrel_ZH-CN3580119980_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.CameraSquirrel_ZH-CN3580119980_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-08-19 [download 4k](https://cn.bing.com/th?id=OHR.CameraSquirrel_ZH-CN3580119980_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.AvatarMountain_ZH-CN3268610045_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-08-18 [download 4k](https://cn.bing.com/th?id=OHR.AvatarMountain_ZH-CN3268610045_UHD.jpg)|
