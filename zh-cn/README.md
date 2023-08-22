@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://cn.bing.com/th?id=OHR.TunisiaAmphitheatre_ZH-CN4431856872_UHD.jpg&w=1000)Today: [埃尔杰姆���天剧场，突尼斯 (© Westend61/Getty Images)](https://cn.bing.com/th?id=OHR.TunisiaAmphitheatre_ZH-CN4431856872_UHD.jpg)
+![](https://cn.bing.com/th?id=OHR.TunisiaAmphitheatre_ZH-CN4431856872_UHD.jpg&w=1000)Today: [埃尔杰姆露天剧场，突尼斯 (© Westend61/Getty Images)](https://cn.bing.com/th?id=OHR.TunisiaAmphitheatre_ZH-CN4431856872_UHD.jpg)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.TunisiaAmphitheatre_ZH-CN4431856872_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-08-22 [download 4k](https://cn.bing.com/th?id=OHR.TunisiaAmphitheatre_ZH-CN4431856872_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.TunisiaAmphitheatre_ZH-CN4431856872_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-08-22 [download 4k](https://cn.bing.com/th?id=OHR.TunisiaAmphitheatre_ZH-CN4431856872_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.EmeraldLakeYukon_ZH-CN4281156537_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-08-21 [download 4k](https://cn.bing.com/th?id=OHR.EmeraldLakeYukon_ZH-CN4281156537_UHD.jpg)|
