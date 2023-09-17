@@ -1,5 +1,5 @@
 ## Bing Wallpaper (2023-09)
-![](https://cn.bing.com/th?id=OHR.CubanTody_ZH-CN8656368705_UHD.jpg&w=1000)Today: [杂色短尾鴗，阿里杰罗德��波尔德国家公园，古巴 (© Bruno D'Amicis/Minden Pictures)](https://cn.bing.com/th?id=OHR.CubanTody_ZH-CN8656368705_UHD.jpg)
+![](https://cn.bing.com/th?id=OHR.CubanTody_ZH-CN8656368705_UHD.jpg&w=1000)Today: [杂色短尾鴗，阿里杰罗德胡波尔德国家公园，古巴 (© Bruno D'Amicis/Minden Pictures)](https://cn.bing.com/th?id=OHR.CubanTody_ZH-CN8656368705_UHD.jpg)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.CubanTody_ZH-CN8656368705_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-09-17 [download 4k](https://cn.bing.com/th?id=OHR.CubanTody_ZH-CN8656368705_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.CubanTody_ZH-CN8656368705_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-09-17 [download 4k](https://cn.bing.com/th?id=OHR.CubanTody_ZH-CN8656368705_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.SplugenPass_ZH-CN8347591461_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-09-16 [download 4k](https://cn.bing.com/th?id=OHR.SplugenPass_ZH-CN8347591461_UHD.jpg)|
