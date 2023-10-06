@@ -1,7 +1,7 @@
 ## Bing Wallpaper
-2023-10-06 | [杜鲁���斯堡的州立托格汉诺克瀑布公园，纽约州，美国 (© Paul Massie Photography/Getty Images)](https://cn.bing.com/th?id=OHR.TaughannockFalls_ZH-CN4580750386_UHD.jpg) 
-
 2023-10-06 | [杜鲁门斯堡的州立托格汉诺克瀑布公园，纽约州，美国 (© Paul Massie Photography/Getty Images)](https://cn.bing.com/th?id=OHR.TaughannockFalls_ZH-CN4580750386_UHD.jpg) 
+
+2023-10-06 | [杜鲁���斯堡的州立托格汉诺克瀑布公园，纽约州，美国 (© Paul Massie Photography/Getty Images)](https://cn.bing.com/th?id=OHR.TaughannockFalls_ZH-CN4580750386_UHD.jpg) 
 
 2023-10-05 | [巴布亚企鹅，南极洲 (© Art Wolfe/Getty Images)](https://cn.bing.com/th?id=OHR.GentooJump_ZH-CN9625511393_UHD.jpg) 
 
