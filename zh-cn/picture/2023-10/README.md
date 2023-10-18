@@ -1,5 +1,5 @@
 ## Bing Wallpaper (2023-10)
-![](https://cn.bing.com/th?id=OHR.KodiakAlaska_ZH-CN0627619150_UHD.jpg&w=1000)Today: [科迪亚克国家野生动物保护区，科迪亚克岛，��拉斯加州，美国 (© Ian Shive/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.KodiakAlaska_ZH-CN0627619150_UHD.jpg)
+![](https://cn.bing.com/th?id=OHR.KodiakAlaska_ZH-CN0627619150_UHD.jpg&w=1000)Today: [科迪亚克国家野生动物保护区，科迪亚克岛，阿拉斯加州，美国 (© Ian Shive/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.KodiakAlaska_ZH-CN0627619150_UHD.jpg)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.KodiakAlaska_ZH-CN0627619150_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-10-18 [download 4k](https://cn.bing.com/th?id=OHR.KodiakAlaska_ZH-CN0627619150_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.KodiakAlaska_ZH-CN0627619150_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-10-18 [download 4k](https://cn.bing.com/th?id=OHR.KodiakAlaska_ZH-CN0627619150_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.GenoeseTower_ZH-CN0086623003_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-10-17 [download 4k](https://cn.bing.com/th?id=OHR.GenoeseTower_ZH-CN0086623003_UHD.jpg)|
