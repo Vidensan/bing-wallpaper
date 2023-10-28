@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://cn.bing.com/th?id=OHR.SavannahSculpture_ZH-CN7663694208_UHD.jpg&w=1000)Today: [博��温彻墓地，萨凡纳，佐治亚州，美国 (© Kelly vanDellen/Alamy)](https://cn.bing.com/th?id=OHR.SavannahSculpture_ZH-CN7663694208_UHD.jpg)
+![](https://cn.bing.com/th?id=OHR.SavannahSculpture_ZH-CN7663694208_UHD.jpg&w=1000)Today: [博纳温彻墓地，萨凡纳，佐治亚州，美国 (© Kelly vanDellen/Alamy)](https://cn.bing.com/th?id=OHR.SavannahSculpture_ZH-CN7663694208_UHD.jpg)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.SavannahSculpture_ZH-CN7663694208_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-10-29 [download 4k](https://cn.bing.com/th?id=OHR.SavannahSculpture_ZH-CN7663694208_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.SavannahSculpture_ZH-CN7663694208_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-10-29 [download 4k](https://cn.bing.com/th?id=OHR.SavannahSculpture_ZH-CN7663694208_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.FiveWinds_ZH-CN7503464049_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-10-28 [download 4k](https://cn.bing.com/th?id=OHR.FiveWinds_ZH-CN7503464049_UHD.jpg)|
