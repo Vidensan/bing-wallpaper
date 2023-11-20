@@ -1,5 +1,5 @@
 ## Bing Wallpaper (2023-11)
-![](https://cn.bing.com/th?id=OHR.HelloSeal_ZH-CN1064568368_UHD.jpg&w=1000)Today: [英���诺福克海滩上的灰海豹幼崽 (© Vince Burton/Minden Pictures)](https://cn.bing.com/th?id=OHR.HelloSeal_ZH-CN1064568368_UHD.jpg)
+![](https://cn.bing.com/th?id=OHR.HelloSeal_ZH-CN1064568368_UHD.jpg&w=1000)Today: [英国诺福克海滩上的灰海豹幼崽 (© Vince Burton/Minden Pictures)](https://cn.bing.com/th?id=OHR.HelloSeal_ZH-CN1064568368_UHD.jpg)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.HelloSeal_ZH-CN1064568368_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-11-21 [download 4k](https://cn.bing.com/th?id=OHR.HelloSeal_ZH-CN1064568368_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.HelloSeal_ZH-CN1064568368_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-11-21 [download 4k](https://cn.bing.com/th?id=OHR.HelloSeal_ZH-CN1064568368_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.CastleCoch_ZH-CN0917284602_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-11-20 [download 4k](https://cn.bing.com/th?id=OHR.CastleCoch_ZH-CN0917284602_UHD.jpg)|
