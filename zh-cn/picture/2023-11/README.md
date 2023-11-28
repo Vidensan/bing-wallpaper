@@ -1,5 +1,5 @@
 ## Bing Wallpaper (2023-11)
-![](https://cn.bing.com/th?id=OHR.AssiniboineProvincialPark_ZH-CN2270275151_UHD.jpg&w=1000)Today: [阿西尼博因山省���公园，加拿大 (© matt macpherson/500px/Getty Images)](https://cn.bing.com/th?id=OHR.AssiniboineProvincialPark_ZH-CN2270275151_UHD.jpg)
+![](https://cn.bing.com/th?id=OHR.AssiniboineProvincialPark_ZH-CN2270275151_UHD.jpg&w=1000)Today: [阿西尼博因山省级公园，加拿大 (© matt macpherson/500px/Getty Images)](https://cn.bing.com/th?id=OHR.AssiniboineProvincialPark_ZH-CN2270275151_UHD.jpg)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.AssiniboineProvincialPark_ZH-CN2270275151_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-11-28 [download 4k](https://cn.bing.com/th?id=OHR.AssiniboineProvincialPark_ZH-CN2270275151_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.AssiniboineProvincialPark_ZH-CN2270275151_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-11-28 [download 4k](https://cn.bing.com/th?id=OHR.AssiniboineProvincialPark_ZH-CN2270275151_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.RioNegro_ZH-CN2121977810_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-11-27 [download 4k](https://cn.bing.com/th?id=OHR.RioNegro_ZH-CN2121977810_UHD.jpg)|
