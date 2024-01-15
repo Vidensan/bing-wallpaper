@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-15 | [瓦茨曼山脚下的冰教堂，巴伐利亚，��国 (© Christian Bäck/eStock Photo)](https://cn.bing.com/th?id=OHR.IceChapel_ZH-CN9189733666_UHD.jpg) 
+
 2024-01-15 | [瓦茨曼山脚下的冰教堂，巴伐利亚，德国 (© Christian Bäck/eStock Photo)](https://cn.bing.com/th?id=OHR.IceChapel_ZH-CN9189733666_UHD.jpg) 
 
 2024-01-14 | [屈斜路湖的天鹅，日本 (© Darrell Gulin/DanitaDelimont.com)](https://cn.bing.com/th?id=OHR.HokkaidoSwans_ZH-CN8733312972_UHD.jpg) 
