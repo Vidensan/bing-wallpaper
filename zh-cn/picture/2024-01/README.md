@@ -1,5 +1,5 @@
 ## Bing Wallpaper (2024-01)
-![](https://cn.bing.com/th?id=OHR.DwynwensDay_ZH-CN1768649253_UHD.jpg&w=1000)Today: [圣德温教堂的废墟，莫纳岛，��尔士，英国 (© Photos by R A Kearton/Getty Images)](https://cn.bing.com/th?id=OHR.DwynwensDay_ZH-CN1768649253_UHD.jpg)
+![](https://cn.bing.com/th?id=OHR.DwynwensDay_ZH-CN1768649253_UHD.jpg&w=1000)Today: [圣德温教堂的废墟，莫纳岛，威尔士，英国 (© Photos by R A Kearton/Getty Images)](https://cn.bing.com/th?id=OHR.DwynwensDay_ZH-CN1768649253_UHD.jpg)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.DwynwensDay_ZH-CN1768649253_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-01-25 [download 4k](https://cn.bing.com/th?id=OHR.DwynwensDay_ZH-CN1768649253_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.DwynwensDay_ZH-CN1768649253_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-01-25 [download 4k](https://cn.bing.com/th?id=OHR.DwynwensDay_ZH-CN1768649253_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.IcelandBeach_ZH-CN1632329693_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-01-24 [download 4k](https://cn.bing.com/th?id=OHR.IcelandBeach_ZH-CN1632329693_UHD.jpg)|
