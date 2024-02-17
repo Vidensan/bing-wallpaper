@@ -1,5 +1,5 @@
 ## Bing Wallpaper (2024-02)
-![](https://cn.bing.com/th?id=OHR.LakeDolomites_ZH-CN2317113886_UHD.jpg&w=1000)Today: [多洛米蒂山的布莱���斯湖，南蒂罗尔，意大利 (© Marco Bottigelli/Getty Images)](https://cn.bing.com/th?id=OHR.LakeDolomites_ZH-CN2317113886_UHD.jpg)
+![](https://cn.bing.com/th?id=OHR.LakeDolomites_ZH-CN2317113886_UHD.jpg&w=1000)Today: [多洛米蒂山的布莱耶斯湖，南蒂罗尔，意大利 (© Marco Bottigelli/Getty Images)](https://cn.bing.com/th?id=OHR.LakeDolomites_ZH-CN2317113886_UHD.jpg)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.LakeDolomites_ZH-CN2317113886_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-02-17 [download 4k](https://cn.bing.com/th?id=OHR.LakeDolomites_ZH-CN2317113886_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.LakeDolomites_ZH-CN2317113886_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-02-17 [download 4k](https://cn.bing.com/th?id=OHR.LakeDolomites_ZH-CN2317113886_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.BackyardBird_ZH-CN0522695977_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-02-16 [download 4k](https://cn.bing.com/th?id=OHR.BackyardBird_ZH-CN0522695977_UHD.jpg)|

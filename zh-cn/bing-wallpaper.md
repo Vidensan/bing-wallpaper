@@ -1,7 +1,7 @@
 ## Bing Wallpaper
-2024-02-17 | [多洛米蒂山的布莱���斯湖，南蒂罗尔，意大利 (© Marco Bottigelli/Getty Images)](https://cn.bing.com/th?id=OHR.LakeDolomites_ZH-CN2317113886_UHD.jpg) 
-
 2024-02-17 | [多洛米蒂山的布莱耶斯湖，南蒂罗尔，意大利 (© Marco Bottigelli/Getty Images)](https://cn.bing.com/th?id=OHR.LakeDolomites_ZH-CN2317113886_UHD.jpg) 
+
+2024-02-17 | [多洛米蒂山的布莱���斯湖，南蒂罗尔，意大利 (© Marco Bottigelli/Getty Images)](https://cn.bing.com/th?id=OHR.LakeDolomites_ZH-CN2317113886_UHD.jpg) 
 
 2024-02-16 | [一只雌性灰额主红雀栖息在德克萨斯州一株多刺仙人掌上，美国 (© outtakes/Getty Images)](https://cn.bing.com/th?id=OHR.BackyardBird_ZH-CN0522695977_UHD.jpg) 
 
