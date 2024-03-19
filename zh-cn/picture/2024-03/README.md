@@ -1,5 +1,5 @@
 ## Bing Wallpaper (2024-03)
-![](https://cn.bing.com/th?id=OHR.AlmondBloom_ZH-CN9441550492_UHD.jpg&w=1000)Today: [盛开的扁桃���, 加利福尼亚州，美国 (© Jeffrey Lewis/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.AlmondBloom_ZH-CN9441550492_UHD.jpg)
+![](https://cn.bing.com/th?id=OHR.AlmondBloom_ZH-CN9441550492_UHD.jpg&w=1000)Today: [盛开的扁桃树, 加利福尼亚州，美国 (© Jeffrey Lewis/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.AlmondBloom_ZH-CN9441550492_UHD.jpg)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.AlmondBloom_ZH-CN9441550492_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-03-19 [download 4k](https://cn.bing.com/th?id=OHR.AlmondBloom_ZH-CN9441550492_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.AlmondBloom_ZH-CN9441550492_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-03-19 [download 4k](https://cn.bing.com/th?id=OHR.AlmondBloom_ZH-CN9441550492_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.ElephantRock_ZH-CN9293300383_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-03-18 [download 4k](https://cn.bing.com/th?id=OHR.ElephantRock_ZH-CN9293300383_UHD.jpg)|
