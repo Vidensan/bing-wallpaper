@@ -1,7 +1,7 @@
 ## Bing Wallpaper
-2024-03-22 | [蓝泉，蒂怀霍步道，新西�� (© Ian Beattie/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.WaikatoWater_ZH-CN0417438809_UHD.jpg) 
-
 2024-03-22 | [蓝泉，蒂怀霍步道，新西兰 (© Ian Beattie/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.WaikatoWater_ZH-CN0417438809_UHD.jpg) 
+
+2024-03-22 | [蓝泉，蒂怀霍步道，新西�� (© Ian Beattie/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.WaikatoWater_ZH-CN0417438809_UHD.jpg) 
 
 2024-03-21 | [布恩迪国家公园，乌干达 (© Art Wolfe/DanitaDelimont.com)](https://cn.bing.com/th?id=OHR.BwindiNationalForest_ZH-CN0436137473_UHD.jpg) 
 
