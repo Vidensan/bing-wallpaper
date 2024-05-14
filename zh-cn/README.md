@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://cn.bing.com/th?id=OHR.BlueCityIndia_ZH-CN4275229255_UHD.jpg&w=1000)Today: [焦特布尔蓝色之城，��度 (© cinoby/Getty Images)](https://cn.bing.com/th?id=OHR.BlueCityIndia_ZH-CN4275229255_UHD.jpg)
+![](https://cn.bing.com/th?id=OHR.BlueCityIndia_ZH-CN4275229255_UHD.jpg&w=1000)Today: [焦特布尔蓝色之城，印度 (© cinoby/Getty Images)](https://cn.bing.com/th?id=OHR.BlueCityIndia_ZH-CN4275229255_UHD.jpg)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.BlueCityIndia_ZH-CN4275229255_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-05-15 [download 4k](https://cn.bing.com/th?id=OHR.BlueCityIndia_ZH-CN4275229255_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.BlueCityIndia_ZH-CN4275229255_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-05-15 [download 4k](https://cn.bing.com/th?id=OHR.BlueCityIndia_ZH-CN4275229255_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.CarlsbadNP_ZH-CN4136753542_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-05-14 [download 4k](https://cn.bing.com/th?id=OHR.CarlsbadNP_ZH-CN4136753542_UHD.jpg)|
