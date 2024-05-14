@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-15 | [焦特布尔蓝色之城，��度 (© cinoby/Getty Images)](https://cn.bing.com/th?id=OHR.BlueCityIndia_ZH-CN4275229255_UHD.jpg) 
+
 2024-05-15 | [焦特布尔蓝色之城，印度 (© cinoby/Getty Images)](https://cn.bing.com/th?id=OHR.BlueCityIndia_ZH-CN4275229255_UHD.jpg) 
 
 2024-05-14 | [通往大房间的走道，卡尔斯巴德洞穴国家公园，新墨西哥州 (© Doug Meek/Getty Images)](https://cn.bing.com/th?id=OHR.CarlsbadNP_ZH-CN4136753542_UHD.jpg) 
