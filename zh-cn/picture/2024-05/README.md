@@ -1,5 +1,5 @@
 ## Bing Wallpaper (2024-05)
-![](https://cn.bing.com/th?id=OHR.CarlsbadNP_ZH-CN4136753542_UHD.jpg&w=1000)Today: [通往大房间的走道，卡尔斯巴德洞穴国家公园，新墨西��州 (© Doug Meek/Getty Images)](https://cn.bing.com/th?id=OHR.CarlsbadNP_ZH-CN4136753542_UHD.jpg)
+![](https://cn.bing.com/th?id=OHR.CarlsbadNP_ZH-CN4136753542_UHD.jpg&w=1000)Today: [通往大房间的走道，卡尔斯巴德洞穴国家公园，新墨西哥州 (© Doug Meek/Getty Images)](https://cn.bing.com/th?id=OHR.CarlsbadNP_ZH-CN4136753542_UHD.jpg)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.CarlsbadNP_ZH-CN4136753542_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-05-14 [download 4k](https://cn.bing.com/th?id=OHR.CarlsbadNP_ZH-CN4136753542_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.CarlsbadNP_ZH-CN4136753542_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-05-14 [download 4k](https://cn.bing.com/th?id=OHR.CarlsbadNP_ZH-CN4136753542_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.NamibiaCanyon_ZH-CN3973338246_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-05-13 [download 4k](https://cn.bing.com/th?id=OHR.NamibiaCanyon_ZH-CN3973338246_UHD.jpg)|

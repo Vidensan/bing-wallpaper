@@ -1,7 +1,7 @@
 ## Bing Wallpaper
-2024-05-14 | [通往大房间的走道，卡尔斯巴德洞穴国家公园，新墨西��州 (© Doug Meek/Getty Images)](https://cn.bing.com/th?id=OHR.CarlsbadNP_ZH-CN4136753542_UHD.jpg) 
-
 2024-05-14 | [通往大房间的走道，卡尔斯巴德洞穴国家公园，新墨西哥州 (© Doug Meek/Getty Images)](https://cn.bing.com/th?id=OHR.CarlsbadNP_ZH-CN4136753542_UHD.jpg) 
+
+2024-05-14 | [通往大房间的走道，卡尔斯巴德洞穴国家公园，新墨西��州 (© Doug Meek/Getty Images)](https://cn.bing.com/th?id=OHR.CarlsbadNP_ZH-CN4136753542_UHD.jpg) 
 
 2024-05-13 | [鱼河大峡谷，纳米比亚 (© R. M. Nunes/Getty Images)](https://cn.bing.com/th?id=OHR.NamibiaCanyon_ZH-CN3973338246_UHD.jpg) 
 
