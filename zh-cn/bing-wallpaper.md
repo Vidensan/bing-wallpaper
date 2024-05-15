@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-16 | [维戈的兰德大桥，西班牙 (© Julio Conde/Getty Images)](https://cn.bing.com/th?id=OHR.ReconquistaVigo_ZH-CN4619580424_UHD.jpg) 
+
 2024-05-15 | [焦特布尔蓝色之城，印度 (© cinoby/Getty Images)](https://cn.bing.com/th?id=OHR.BlueCityIndia_ZH-CN4275229255_UHD.jpg) 
 
 2024-05-15 | [焦特布尔蓝色之城，��度 (© cinoby/Getty Images)](https://cn.bing.com/th?id=OHR.BlueCityIndia_ZH-CN4275229255_UHD.jpg) 
