@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://cn.bing.com/th?id=OHR.SestriLevante_ZH-CN9286254645_UHD.jpg&w=1000)Today: [塞斯特里莱万特的沉默湾，利古里亚大区��意大利 (© StevanZZ/Getty Images)](https://cn.bing.com/th?id=OHR.SestriLevante_ZH-CN9286254645_UHD.jpg)
+![](https://cn.bing.com/th?id=OHR.SestriLevante_ZH-CN9286254645_UHD.jpg&w=1000)Today: [塞斯特里莱万特的沉默湾，利古里亚大区，意大利 (© StevanZZ/Getty Images)](https://cn.bing.com/th?id=OHR.SestriLevante_ZH-CN9286254645_UHD.jpg)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.SestriLevante_ZH-CN9286254645_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-05-27 [download 4k](https://cn.bing.com/th?id=OHR.SestriLevante_ZH-CN9286254645_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.SestriLevante_ZH-CN9286254645_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-05-27 [download 4k](https://cn.bing.com/th?id=OHR.SestriLevante_ZH-CN9286254645_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.MethowWildflowers_ZH-CN8926661958_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-05-26 [download 4k](https://cn.bing.com/th?id=OHR.MethowWildflowers_ZH-CN8926661958_UHD.jpg)|
