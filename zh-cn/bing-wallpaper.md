@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-03 | [哥本哈根的自行车，��麦 (© Alphotographic/Getty Images)](https://cn.bing.com/th?id=OHR.CopenhagenBicycles_ZH-CN3047958346_UHD.jpg) 
+
 2024-06-03 | [哥本哈根的自行车，丹麦 (© Alphotographic/Getty Images)](https://cn.bing.com/th?id=OHR.CopenhagenBicycles_ZH-CN3047958346_UHD.jpg) 
 
 2024-06-02 | [普卢马纳克的灯塔，阿摩尔滨海省，法国 (© Christian Handl/Getty Images)](https://cn.bing.com/th?id=OHR.MenRuz_ZH-CN2021725181_UHD.jpg) 
