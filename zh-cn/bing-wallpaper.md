@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-11 | [热带稀树草原上的南非剑羚，博茨瓦纳大��原 (© Karine Aigner/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.GemsbokBotswana_ZH-CN7507199339_UHD.jpg) 
+
 2024-06-11 | [热带稀树草原上的南非剑羚，博茨瓦纳大草原 (© Karine Aigner/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.GemsbokBotswana_ZH-CN7507199339_UHD.jpg) 
 
 2024-06-10 | [龙舟池日出，集美区，厦门，中国 (© outcast85/Getty images)](https://cn.bing.com/th?id=OHR.DragonBoatFestival2024_ZH-CN6619827853_UHD.jpg) 
