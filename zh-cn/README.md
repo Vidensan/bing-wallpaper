@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://cn.bing.com/th?id=OHR.FloresIsland_ZH-CN6930246149_UHD.jpg&w=1000)Today: [克里穆图的火山口湖，弗洛勒斯岛，印��尼西亚 (© Shane P. White/Minden Pictures)](https://cn.bing.com/th?id=OHR.FloresIsland_ZH-CN6930246149_UHD.jpg)
+![](https://cn.bing.com/th?id=OHR.FloresIsland_ZH-CN6930246149_UHD.jpg&w=1000)Today: [克里穆图的火山口湖，弗洛勒斯岛，印度尼西亚 (© Shane P. White/Minden Pictures)](https://cn.bing.com/th?id=OHR.FloresIsland_ZH-CN6930246149_UHD.jpg)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.FloresIsland_ZH-CN6930246149_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-06-24 [download 4k](https://cn.bing.com/th?id=OHR.FloresIsland_ZH-CN6930246149_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.FloresIsland_ZH-CN6930246149_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-06-24 [download 4k](https://cn.bing.com/th?id=OHR.FloresIsland_ZH-CN6930246149_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.DhakaBangladesh_ZH-CN6777866162_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-06-23 [download 4k](https://cn.bing.com/th?id=OHR.DhakaBangladesh_ZH-CN6777866162_UHD.jpg)|
