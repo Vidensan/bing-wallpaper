@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://cn.bing.com/th?id=OHR.TalampayaNP_EN-US4761770918_UHD.jpg&w=1000)Today: [Talampaya National Park, La Rioja province, Argentina (�� Gonzalo Azumendi/Getty Images)](https://cn.bing.com/th?id=OHR.TalampayaNP_EN-US4761770918_UHD.jpg)
+![](https://cn.bing.com/th?id=OHR.TalampayaNP_EN-US4761770918_UHD.jpg&w=1000)Today: [Talampaya National Park, La Rioja province, Argentina (© Gonzalo Azumendi/Getty Images)](https://cn.bing.com/th?id=OHR.TalampayaNP_EN-US4761770918_UHD.jpg)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.TalampayaNP_EN-US4761770918_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-07-10 [download 4k](https://cn.bing.com/th?id=OHR.TalampayaNP_EN-US4761770918_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.TalampayaNP_EN-US4761770918_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-07-10 [download 4k](https://cn.bing.com/th?id=OHR.TalampayaNP_EN-US4761770918_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.NorwayBlueberries_EN-US4598733420_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-07-09 [download 4k](https://cn.bing.com/th?id=OHR.NorwayBlueberries_EN-US4598733420_UHD.jpg)|
