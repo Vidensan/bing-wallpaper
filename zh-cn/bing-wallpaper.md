@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-15 | [���石公园，神奈川县，日本 (© blew_s/Shutterstock)](https://cn.bing.com/th?id=OHR.TateishiPark_ZH-CN9903501398_UHD.jpg) 
+
 2024-07-15 | [立石公园，神奈川县，日本 (© blew_s/Shutterstock)](https://cn.bing.com/th?id=OHR.TateishiPark_ZH-CN9903501398_UHD.jpg) 
 
 2024-07-14 | [女王花园群岛的镰形真鲨，古巴 (© Christian Vizl/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.SilkyShark_ZH-CN9523915460_UHD.jpg) 
