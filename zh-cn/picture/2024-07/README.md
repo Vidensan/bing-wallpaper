@@ -1,5 +1,5 @@
 ## Bing Wallpaper (2024-07)
-![](https://cn.bing.com/th?id=OHR.TateishiPark_ZH-CN9903501398_UHD.jpg&w=1000)Today: [���石公园，神奈川县，日本 (© blew_s/Shutterstock)](https://cn.bing.com/th?id=OHR.TateishiPark_ZH-CN9903501398_UHD.jpg)
+![](https://cn.bing.com/th?id=OHR.TateishiPark_ZH-CN9903501398_UHD.jpg&w=1000)Today: [立石公园，神奈川县，日本 (© blew_s/Shutterstock)](https://cn.bing.com/th?id=OHR.TateishiPark_ZH-CN9903501398_UHD.jpg)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.TateishiPark_ZH-CN9903501398_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-07-15 [download 4k](https://cn.bing.com/th?id=OHR.TateishiPark_ZH-CN9903501398_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.TateishiPark_ZH-CN9903501398_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-07-15 [download 4k](https://cn.bing.com/th?id=OHR.TateishiPark_ZH-CN9903501398_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.SilkyShark_ZH-CN9523915460_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-07-14 [download 4k](https://cn.bing.com/th?id=OHR.SilkyShark_ZH-CN9523915460_UHD.jpg)|
