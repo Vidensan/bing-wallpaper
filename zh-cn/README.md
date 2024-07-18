@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://cn.bing.com/th?id=OHR.YoungJaguar_ZH-CN2249923627_UHD.jpg&w=1000)Today: [河岸上的一��年轻美洲虎，潘塔纳尔，巴西 (© Tambako the Jaguar/Getty Images)](https://cn.bing.com/th?id=OHR.YoungJaguar_ZH-CN2249923627_UHD.jpg)
+![](https://cn.bing.com/th?id=OHR.YoungJaguar_ZH-CN2249923627_UHD.jpg&w=1000)Today: [河岸上的一只年轻美洲虎，潘塔纳尔，巴西 (© Tambako the Jaguar/Getty Images)](https://cn.bing.com/th?id=OHR.YoungJaguar_ZH-CN2249923627_UHD.jpg)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.YoungJaguar_ZH-CN2249923627_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-07-19 [download 4k](https://cn.bing.com/th?id=OHR.YoungJaguar_ZH-CN2249923627_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.YoungJaguar_ZH-CN2249923627_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-07-19 [download 4k](https://cn.bing.com/th?id=OHR.YoungJaguar_ZH-CN2249923627_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.MayotteCoral_ZH-CN8106288026_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-07-18 [download 4k](https://cn.bing.com/th?id=OHR.MayotteCoral_ZH-CN8106288026_UHD.jpg)|
