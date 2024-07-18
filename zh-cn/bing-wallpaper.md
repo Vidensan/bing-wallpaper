@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-19 | [河岸上的一��年轻美洲虎，潘塔纳尔，巴西 (© Tambako the Jaguar/Getty Images)](https://cn.bing.com/th?id=OHR.YoungJaguar_ZH-CN2249923627_UHD.jpg) 
+
 2024-07-19 | [河岸上的一只年轻美洲虎，潘塔纳尔，巴西 (© Tambako the Jaguar/Getty Images)](https://cn.bing.com/th?id=OHR.YoungJaguar_ZH-CN2249923627_UHD.jpg) 
 
 2024-07-18 | [印度洋的珊瑚礁，马约特岛，法国 (© Gabriel Barathieu/Minden Pictures)](https://cn.bing.com/th?id=OHR.MayotteCoral_ZH-CN8106288026_UHD.jpg) 
