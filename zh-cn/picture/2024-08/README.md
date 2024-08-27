@@ -1,5 +1,5 @@
 ## Bing Wallpaper (2024-08)
-![](https://cn.bing.com/th?id=OHR.YoungCaiman_ZH-CN1995433788_UHD.jpg&w=1000)Today: [黑色凯门鳄幼崽，坦博��塔国家保护区，秘鲁 (© Maxime Aliaga/Minden Pictures)](https://cn.bing.com/th?id=OHR.YoungCaiman_ZH-CN1995433788_UHD.jpg)
+![](https://cn.bing.com/th?id=OHR.YoungCaiman_ZH-CN1995433788_UHD.jpg&w=1000)Today: [黑色凯门鳄幼崽，坦博帕塔国家保护区，秘鲁 (© Maxime Aliaga/Minden Pictures)](https://cn.bing.com/th?id=OHR.YoungCaiman_ZH-CN1995433788_UHD.jpg)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.YoungCaiman_ZH-CN1995433788_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-08-27 [download 4k](https://cn.bing.com/th?id=OHR.YoungCaiman_ZH-CN1995433788_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.YoungCaiman_ZH-CN1995433788_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-08-27 [download 4k](https://cn.bing.com/th?id=OHR.YoungCaiman_ZH-CN1995433788_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.PalmyraAtoll_ZH-CN1814325540_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-08-26 [download 4k](https://cn.bing.com/th?id=OHR.PalmyraAtoll_ZH-CN1814325540_UHD.jpg)|
