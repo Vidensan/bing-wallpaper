@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-04 | [木星的��卫星木卫二 (© NASA/JPL-Caltech/SETI Institute)](https://cn.bing.com/th?id=OHR.EuropaMoon_ZH-CN0149249980_UHD.jpg) 
+
 2024-10-04 | [木星的冰卫星木卫二 (© NASA/JPL-Caltech/SETI Institute)](https://cn.bing.com/th?id=OHR.EuropaMoon_ZH-CN0149249980_UHD.jpg) 
 
 2024-10-03 | [阿格拉的泰姬陵，安拉阿巴德，印度 (© Tanarch/Getty Images)](https://cn.bing.com/th?id=OHR.TajMahalReflection_ZH-CN7498774173_UHD.jpg) 
