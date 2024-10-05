@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://cn.bing.com/th?id=OHR.CoyoteGulch_ZH-CN2869463336_UHD.jpg&w=1000)Today: [郊狼峡谷拱��中的白杨树，格兰峡谷休闲区，犹他州，美国 (© Stephen Matera/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.CoyoteGulch_ZH-CN2869463336_UHD.jpg)
+![](https://cn.bing.com/th?id=OHR.CoyoteGulch_ZH-CN2869463336_UHD.jpg&w=1000)Today: [郊狼峡谷拱门中的白杨树，格兰峡谷休闲区，犹他州，美国 (© Stephen Matera/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.CoyoteGulch_ZH-CN2869463336_UHD.jpg)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.CoyoteGulch_ZH-CN2869463336_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-10-06 [download 4k](https://cn.bing.com/th?id=OHR.CoyoteGulch_ZH-CN2869463336_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.CoyoteGulch_ZH-CN2869463336_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-10-06 [download 4k](https://cn.bing.com/th?id=OHR.CoyoteGulch_ZH-CN2869463336_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.ElephantTeacher_ZH-CN0543308499_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-10-05 [download 4k](https://cn.bing.com/th?id=OHR.ElephantTeacher_ZH-CN0543308499_UHD.jpg)|
