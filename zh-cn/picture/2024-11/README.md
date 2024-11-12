@@ -1,5 +1,5 @@
 ## Bing Wallpaper (2024-11)
-![](https://cn.bing.com/th?id=OHR.CoveArch_ZH-CN1281140578_UHD.jpg&w=1000)Today: [��过海湾拱门看到双拱门，拱门国家公园，犹他州，美国 (© Jeff Foott/Minden Pictures)](https://cn.bing.com/th?id=OHR.CoveArch_ZH-CN1281140578_UHD.jpg)
+![](https://cn.bing.com/th?id=OHR.CoveArch_ZH-CN1281140578_UHD.jpg&w=1000)Today: [透过海湾拱门看到双拱门，拱门国家公园，犹他州，美国 (© Jeff Foott/Minden Pictures)](https://cn.bing.com/th?id=OHR.CoveArch_ZH-CN1281140578_UHD.jpg)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.CoveArch_ZH-CN1281140578_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-11-12 [download 4k](https://cn.bing.com/th?id=OHR.CoveArch_ZH-CN1281140578_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.CoveArch_ZH-CN1281140578_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-11-12 [download 4k](https://cn.bing.com/th?id=OHR.CoveArch_ZH-CN1281140578_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.Banff24_ZH-CN1156176817_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-11-11 [download 4k](https://cn.bing.com/th?id=OHR.Banff24_ZH-CN1156176817_UHD.jpg)|
