@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-23 | [多叶芦��，袋鼠岛，澳大利亚 (© Michael Melford/Alamy)](https://cn.bing.com/th?id=OHR.FibonacciAloe_ZH-CN8974137481_UHD.jpg) 
+
 2024-11-23 | [多叶芦荟，袋鼠岛，澳大利亚 (© Michael Melford/Alamy)](https://cn.bing.com/th?id=OHR.FibonacciAloe_ZH-CN8974137481_UHD.jpg) 
 
 2024-11-22 | [萨夫拉城堡，瓜达拉哈拉省，西班牙 (© Eduard Gene/Getty Images)](https://cn.bing.com/th?id=OHR.ZafraCastle_ZH-CN8791148758_UHD.jpg) 
