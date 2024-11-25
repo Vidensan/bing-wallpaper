@@ -1,7 +1,7 @@
 ## Bing Wallpaper
-2024-11-26 | [橄榄树林，伊特里亚山谷��普利亚，意大利 (© Massimo Santi/Shutterstock)](https://cn.bing.com/th?id=OHR.TrulliGrove_ZH-CN9519400567_UHD.jpg) 
-
 2024-11-26 | [橄榄树林，伊特里亚山谷，普利亚，意大利 (© Massimo Santi/Shutterstock)](https://cn.bing.com/th?id=OHR.TrulliGrove_ZH-CN9519400567_UHD.jpg) 
+
+2024-11-26 | [橄榄树林，伊特里亚山谷��普利亚，意大利 (© Massimo Santi/Shutterstock)](https://cn.bing.com/th?id=OHR.TrulliGrove_ZH-CN9519400567_UHD.jpg) 
 
 2024-11-25 | [马赛长颈鹿，安波塞利国家公园，肯尼亚 (© Art Wolfe/DanitaDelimont.com)](https://cn.bing.com/th?id=OHR.AmboseliGiraffes_ZH-CN9276085602_UHD.jpg) 
 
