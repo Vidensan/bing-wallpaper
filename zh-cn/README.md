@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://cn.bing.com/th?id=OHR.JaipurFort_ZH-CN3891828158_UHD.jpg&w=1000)Today: [Sattais Katcheri，琥珀���，拉贾斯坦邦，印度 (© Yury Taranik/Shutterstock)](https://cn.bing.com/th?id=OHR.JaipurFort_ZH-CN3891828158_UHD.jpg)
+![](https://cn.bing.com/th?id=OHR.JaipurFort_ZH-CN3891828158_UHD.jpg&w=1000)Today: [Sattais Katcheri，琥珀堡，拉贾斯坦邦，印度 (© Yury Taranik/Shutterstock)](https://cn.bing.com/th?id=OHR.JaipurFort_ZH-CN3891828158_UHD.jpg)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.JaipurFort_ZH-CN3891828158_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-12-03 [download 4k](https://cn.bing.com/th?id=OHR.JaipurFort_ZH-CN3891828158_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.JaipurFort_ZH-CN3891828158_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-12-03 [download 4k](https://cn.bing.com/th?id=OHR.JaipurFort_ZH-CN3891828158_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.SnowMoose_ZH-CN3364979952_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-12-02 [download 4k](https://cn.bing.com/th?id=OHR.SnowMoose_ZH-CN3364979952_UHD.jpg)|
