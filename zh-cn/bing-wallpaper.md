@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-09 | [两只原驼,托雷斯德尔帕恩国家公园 , 智利 (© Floris van Breugel/NPL/Minden Pictures)](https://cn.bing.com/th?id=OHR.GuanacosChile_ZH-CN7011761081_UHD.jpg) 
+
 2024-12-08 | [巴黎圣母院，巴黎，法国 (© Julien Fromentin/Getty Images)](https://cn.bing.com/th?id=OHR.ReopeningNotreDame_ZH-CN6512133762_UHD.jpg) 
 
 2024-12-08 | [���黎圣母院，巴黎，法国 (© Julien Fromentin/Getty Images)](https://cn.bing.com/th?id=OHR.ReopeningNotreDame_ZH-CN6512133762_UHD.jpg) 
