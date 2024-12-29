@@ -1,7 +1,7 @@
 ## Bing Wallpaper
-2024-12-30 | [多布森湖附近的塔斯马尼亚雪胶和班达尼植物，费尔德山国家公��，塔斯马尼亚，澳大利亚 (© Whitworth Images/Getty Images)](https://cn.bing.com/th?id=OHR.MountFieldNP_ZH-CN6004420782_UHD.jpg) 
-
 2024-12-30 | [多布森湖附近的塔斯马尼亚雪胶和班达尼植物，费尔德山国家公园，塔斯马尼亚，澳大利亚 (© Whitworth Images/Getty Images)](https://cn.bing.com/th?id=OHR.MountFieldNP_ZH-CN6004420782_UHD.jpg) 
+
+2024-12-30 | [多布森湖附近的塔斯马尼亚雪胶和班达尼植物，费尔德山国家公��，塔斯马尼亚，澳大利亚 (© Whitworth Images/Getty Images)](https://cn.bing.com/th?id=OHR.MountFieldNP_ZH-CN6004420782_UHD.jpg) 
 
 2024-12-29 | [婆罗浮屠大佛寺，爪哇岛，印度尼西亚 (© Robertharding/Shutterstock)](https://cn.bing.com/th?id=OHR.BorobudurBells_ZH-CN5291511365_UHD.jpg) 
 
