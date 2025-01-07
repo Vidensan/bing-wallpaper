@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-08 | [被雪覆盖的长城，中国 (© View Stock/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.GreatWallStairs_ZH-CN4045949792_UHD.jpg) 
+
 2025-01-07 | [日落时的摩拉基大圆石，南岛，新西兰 (© Douglas Pearson/eStock Photo)](https://cn.bing.com/th?id=OHR.BouldersNZ_ZH-CN6750253580_UHD.jpg) 
 
 2025-01-07 | [日落时的摩拉基大��石，南岛，新西兰 (© Douglas Pearson/eStock Photo)](https://cn.bing.com/th?id=OHR.BouldersNZ_ZH-CN6750253580_UHD.jpg) 
