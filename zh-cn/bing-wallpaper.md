@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-07 | [特隆赫姆的蓝色时刻，挪威 (© Jeanny Mueller/Getty Images)](https://cn.bing.com/th?id=OHR.BlueNorway_ZH-CN4865816873_UHD.jpg) 
+
 2025-02-07 | [特隆赫姆的蓝色时刻，挪威 (© Jeanny Mueller/Getty Images)](https://cn.bing.com/th?id=OHR.BlueNorway_ZH-CN4058377560_UHD.jpg) 
 
 2025-02-07 | [特隆赫姆的蓝色时刻，挪威 (© Jeanny Mueller/Getty Images)](https://cn.bing.com/th?id=OHR.BlueNorway_ZH-CN7489077966_UHD.jpg) 
