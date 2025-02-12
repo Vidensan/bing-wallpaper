@@ -1,5 +1,5 @@
 ## Bing Wallpaper (2025-02)
-![](https://cn.bing.com/th?id=OHR.LanterFestival25Y_ZH-CN8547998003_UHD.jpg&w=1000)Today: [上海豫园的灯会，元宵节，上海市，中��� (© atiger/Shutterstock)](https://cn.bing.com/th?id=OHR.LanterFestival25Y_ZH-CN8547998003_UHD.jpg)
+![](https://cn.bing.com/th?id=OHR.LanterFestival25Y_ZH-CN8547998003_UHD.jpg&w=1000)Today: [上海豫园的灯会，元宵节，上海市，中国 (© atiger/Shutterstock)](https://cn.bing.com/th?id=OHR.LanterFestival25Y_ZH-CN8547998003_UHD.jpg)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.LanterFestival25Y_ZH-CN8547998003_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-02-12 [download 4k](https://cn.bing.com/th?id=OHR.LanterFestival25Y_ZH-CN8547998003_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.LanterFestival25Y_ZH-CN8547998003_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-02-12 [download 4k](https://cn.bing.com/th?id=OHR.LanterFestival25Y_ZH-CN8547998003_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.YungangGrottoes_ZH-CN8275054060_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-02-11 [download 4k](https://cn.bing.com/th?id=OHR.YungangGrottoes_ZH-CN8275054060_UHD.jpg)|
