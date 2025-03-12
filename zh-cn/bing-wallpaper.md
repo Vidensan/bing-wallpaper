@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-13 | [洒红节庆祝活动，斋浦尔，印度 (© powerofforever/Getty Images)](https://cn.bing.com/th?id=OHR.HoliColors_ZH-CN2177185823_UHD.jpg) 
+
 2025-03-12 | [卢瓦尔河畔叙利城堡, 卢瓦尔中心省, 法国 (© StockPhotoAstur/Shutterstock)](https://cn.bing.com/th?id=OHR.ChateauLoire_ZH-CN5040147638_UHD.jpg) 
 
 2025-03-12 | [卢瓦尔河畔��利城堡, 卢瓦尔中心省, 法国 (© StockPhotoAstur/Shutterstock)](https://cn.bing.com/th?id=OHR.ChateauLoire_ZH-CN5040147638_UHD.jpg) 
