@@ -1,5 +1,5 @@
 ## Bing Wallpaper (2025-03)
-![](https://cn.bing.com/th?id=OHR.ChateauLoire_ZH-CN5040147638_UHD.jpg&w=1000)Today: [卢瓦尔河畔��利城堡, 卢瓦尔中心省, 法国 (© StockPhotoAstur/Shutterstock)](https://cn.bing.com/th?id=OHR.ChateauLoire_ZH-CN5040147638_UHD.jpg)
+![](https://cn.bing.com/th?id=OHR.ChateauLoire_ZH-CN5040147638_UHD.jpg&w=1000)Today: [卢瓦尔河畔叙利城堡, 卢瓦尔中心省, 法国 (© StockPhotoAstur/Shutterstock)](https://cn.bing.com/th?id=OHR.ChateauLoire_ZH-CN5040147638_UHD.jpg)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.ChateauLoire_ZH-CN5040147638_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-03-12 [download 4k](https://cn.bing.com/th?id=OHR.ChateauLoire_ZH-CN5040147638_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.ChateauLoire_ZH-CN5040147638_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-03-12 [download 4k](https://cn.bing.com/th?id=OHR.ChateauLoire_ZH-CN5040147638_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.NusaPenida_ZH-CN4934656933_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-03-11 [download 4k](https://cn.bing.com/th?id=OHR.NusaPenida_ZH-CN4934656933_UHD.jpg)|
