@@ -1,5 +1,5 @@
 ## Bing Wallpaper (2025-04)
-![](https://cn.bing.com/th?id=OHR.GardensVillandry_ZH-CN3660934263_UHD.jpg&w=1000)Today: [维朗德里城��，卢瓦尔河谷，法国 (© Mint Images/Getty Images)](https://cn.bing.com/th?id=OHR.GardensVillandry_ZH-CN3660934263_UHD.jpg)
+![](https://cn.bing.com/th?id=OHR.GardensVillandry_ZH-CN3660934263_UHD.jpg&w=1000)Today: [维朗德里城堡，卢瓦尔河谷，法国 (© Mint Images/Getty Images)](https://cn.bing.com/th?id=OHR.GardensVillandry_ZH-CN3660934263_UHD.jpg)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.GardensVillandry_ZH-CN3660934263_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-04-29 [download 4k](https://cn.bing.com/th?id=OHR.GardensVillandry_ZH-CN3660934263_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.GardensVillandry_ZH-CN3660934263_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-04-29 [download 4k](https://cn.bing.com/th?id=OHR.GardensVillandry_ZH-CN3660934263_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.GardensVillandry_ZH-CN3660934263_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-04-29 [download 4k](https://cn.bing.com/th?id=OHR.GardensVillandry_ZH-CN3660934263_UHD.jpg)|
