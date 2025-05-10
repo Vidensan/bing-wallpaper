@@ -1,5 +1,5 @@
 ## Bing Wallpaper (2025-05)
-![](https://cn.bing.com/th?id=OHR.Castildetierra_ZH-CN6042529770_UHD.jpg&w=1000)Today: [巴尔德纳��雷亚尔斯自然公园的卡斯蒂尔德蒂拉，纳瓦拉，西班牙 (© Eloi_Omella/Getty Images)](https://cn.bing.com/th?id=OHR.Castildetierra_ZH-CN6042529770_UHD.jpg)
+![](https://cn.bing.com/th?id=OHR.Castildetierra_ZH-CN6042529770_UHD.jpg&w=1000)Today: [巴尔德纳斯雷亚尔斯自然公园的卡斯蒂尔德蒂拉，纳瓦拉，西班牙 (© Eloi_Omella/Getty Images)](https://cn.bing.com/th?id=OHR.Castildetierra_ZH-CN6042529770_UHD.jpg)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.Castildetierra_ZH-CN6042529770_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-05-10 [download 4k](https://cn.bing.com/th?id=OHR.Castildetierra_ZH-CN6042529770_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.Castildetierra_ZH-CN6042529770_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-05-10 [download 4k](https://cn.bing.com/th?id=OHR.Castildetierra_ZH-CN6042529770_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.CuteChameleon_ZH-CN5029981236_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-05-09 [download 4k](https://cn.bing.com/th?id=OHR.CuteChameleon_ZH-CN5029981236_UHD.jpg)|
