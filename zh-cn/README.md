@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://cn.bing.com/th?id=OHR.FlamingosNamibia_ZH-CN3639748956_UHD.jpg&w=1000)Today: [大红鹳，吕��里茨，纳米比亚 (© Karine Aigner/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.FlamingosNamibia_ZH-CN3639748956_UHD.jpg)
+![](https://cn.bing.com/th?id=OHR.FlamingosNamibia_ZH-CN3639748956_UHD.jpg&w=1000)Today: [大红鹳，吕德里茨，纳米比亚 (© Karine Aigner/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.FlamingosNamibia_ZH-CN3639748956_UHD.jpg)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.FlamingosNamibia_ZH-CN3639748956_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-06-11 [download 4k](https://cn.bing.com/th?id=OHR.FlamingosNamibia_ZH-CN3639748956_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.FlamingosNamibia_ZH-CN3639748956_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-06-11 [download 4k](https://cn.bing.com/th?id=OHR.FlamingosNamibia_ZH-CN3639748956_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.AerialEverglades_ZH-CN3388982881_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-06-10 [download 4k](https://cn.bing.com/th?id=OHR.AerialEverglades_ZH-CN3388982881_UHD.jpg)|
