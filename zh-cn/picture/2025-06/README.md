@@ -1,5 +1,5 @@
 ## Bing Wallpaper (2025-06)
-![](https://cn.bing.com/th?id=OHR.RheaDad_ZH-CN6706868651_UHD.jpg&w=1000)Today: [雄性小美洲鸵与幼���，托雷斯德尔潘恩国家公园，巴塔哥尼亚，智利 (© Ignacio Yufera/Minden Pictures)](https://cn.bing.com/th?id=OHR.RheaDad_ZH-CN6706868651_UHD.jpg)
+![](https://cn.bing.com/th?id=OHR.RheaDad_ZH-CN6706868651_UHD.jpg&w=1000)Today: [雄性小美洲鸵与幼鸟，托雷斯德尔潘恩国家公园，巴塔哥尼亚，智利 (© Ignacio Yufera/Minden Pictures)](https://cn.bing.com/th?id=OHR.RheaDad_ZH-CN6706868651_UHD.jpg)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.RheaDad_ZH-CN6706868651_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-06-15 [download 4k](https://cn.bing.com/th?id=OHR.RheaDad_ZH-CN6706868651_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.RheaDad_ZH-CN6706868651_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-06-15 [download 4k](https://cn.bing.com/th?id=OHR.RheaDad_ZH-CN6706868651_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-06-14 [download 4k](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_UHD.jpg)|
