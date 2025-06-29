@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://cn.bing.com/th?id=OHR.BandaIsland_ZH-CN1145779264_UHD.jpg&w=1000)Today: [Pulau Ay蓝色泻湖, 班��群岛, 印度尼西亚 (© fabio lamanna/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.BandaIsland_ZH-CN1145779264_UHD.jpg)
+![](https://cn.bing.com/th?id=OHR.BandaIsland_ZH-CN1145779264_UHD.jpg&w=1000)Today: [Pulau Ay蓝色泻湖, 班达群岛, 印度尼西亚 (© fabio lamanna/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.BandaIsland_ZH-CN1145779264_UHD.jpg)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.BandaIsland_ZH-CN1145779264_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-06-29 [download 4k](https://cn.bing.com/th?id=OHR.BandaIsland_ZH-CN1145779264_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.BandaIsland_ZH-CN1145779264_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-06-29 [download 4k](https://cn.bing.com/th?id=OHR.BandaIsland_ZH-CN1145779264_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.WatertowerMannheim_ZH-CN0692039329_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-06-28 [download 4k](https://cn.bing.com/th?id=OHR.WatertowerMannheim_ZH-CN0692039329_UHD.jpg)|
