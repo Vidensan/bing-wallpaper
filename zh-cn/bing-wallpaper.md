@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-30 | [沃尔夫溪陨石坑, 澳大利亚 (© Abstract Aerial Art/Getty Images)](https://cn.bing.com/th?id=OHR.WolfeCrater_ZH-CN1652906326_UHD.jpg) 
+
 2025-06-29 | [Pulau Ay蓝色泻湖, 班达群岛, 印度尼西亚 (© fabio lamanna/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.BandaIsland_ZH-CN1145779264_UHD.jpg) 
 
 2025-06-29 | [Pulau Ay蓝色泻湖, 班��群岛, 印度尼西亚 (© fabio lamanna/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.BandaIsland_ZH-CN1145779264_UHD.jpg) 
