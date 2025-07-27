@@ -1,5 +1,5 @@
 ## Bing Wallpaper (2025-07)
-![](https://cn.bing.com/th?id=OHR.BlackfinBarracuda_ZH-CN3850642551_UHD.jpg&w=1000)Today: [黑鳍梭鱼群，鲨鱼礁，拉斯穆罕默德国家���园，西奈半岛，埃及 (© Alex Mustard/Nature Picture Library)](https://cn.bing.com/th?id=OHR.BlackfinBarracuda_ZH-CN3850642551_UHD.jpg)
+![](https://cn.bing.com/th?id=OHR.BlackfinBarracuda_ZH-CN3850642551_UHD.jpg&w=1000)Today: [黑鳍梭鱼群，鲨鱼礁，拉斯穆罕默德国家公园，西奈半岛，埃及 (© Alex Mustard/Nature Picture Library)](https://cn.bing.com/th?id=OHR.BlackfinBarracuda_ZH-CN3850642551_UHD.jpg)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.BlackfinBarracuda_ZH-CN3850642551_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-07-27 [download 4k](https://cn.bing.com/th?id=OHR.BlackfinBarracuda_ZH-CN3850642551_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.BlackfinBarracuda_ZH-CN3850642551_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-07-27 [download 4k](https://cn.bing.com/th?id=OHR.BlackfinBarracuda_ZH-CN3850642551_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.MangroveTwilight_ZH-CN3596666263_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-07-26 [download 4k](https://cn.bing.com/th?id=OHR.MangroveTwilight_ZH-CN3596666263_UHD.jpg)|
