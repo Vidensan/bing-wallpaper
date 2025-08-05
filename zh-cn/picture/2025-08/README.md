@@ -1,5 +1,5 @@
 ## Bing Wallpaper (2025-08)
-![](https://cn.bing.com/th?id=OHR.CaliforniaTidepool_ZH-CN6273815361_UHD.jpg&w=1000)Today: [拉霍亚的���汐池‌, 加利福尼亚州, 美国 (© Andrew Shoemaker/DanitaDelimont.com)](https://cn.bing.com/th?id=OHR.CaliforniaTidepool_ZH-CN6273815361_UHD.jpg)
+![](https://cn.bing.com/th?id=OHR.CaliforniaTidepool_ZH-CN6273815361_UHD.jpg&w=1000)Today: [拉霍亚的潮汐池‌, 加利福尼亚州, 美国 (© Andrew Shoemaker/DanitaDelimont.com)](https://cn.bing.com/th?id=OHR.CaliforniaTidepool_ZH-CN6273815361_UHD.jpg)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.CaliforniaTidepool_ZH-CN6273815361_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-08-05 [download 4k](https://cn.bing.com/th?id=OHR.CaliforniaTidepool_ZH-CN6273815361_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.CaliforniaTidepool_ZH-CN6273815361_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-08-05 [download 4k](https://cn.bing.com/th?id=OHR.CaliforniaTidepool_ZH-CN6273815361_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.CaliforniaTidepool_ZH-CN6273815361_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-08-05 [download 4k](https://cn.bing.com/th?id=OHR.CaliforniaTidepool_ZH-CN6273815361_UHD.jpg)|
