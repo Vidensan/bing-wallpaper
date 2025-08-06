@@ -1,7 +1,7 @@
 ## Bing Wallpaper
-2025-08-06 | [环尾狐猴幼崽在玩自己���尾巴‌, 马达加斯加 (© Andy Rouse/Nature Picture Library)](https://cn.bing.com/th?id=OHR.BabyLemur_ZH-CN6617977758_UHD.jpg) 
-
 2025-08-06 | [环尾狐猴幼崽在玩自己的尾巴‌, 马达加斯加 (© Andy Rouse/Nature Picture Library)](https://cn.bing.com/th?id=OHR.BabyLemur_ZH-CN6617977758_UHD.jpg) 
+
+2025-08-06 | [环尾狐猴幼崽在玩自己���尾巴‌, 马达加斯加 (© Andy Rouse/Nature Picture Library)](https://cn.bing.com/th?id=OHR.BabyLemur_ZH-CN6617977758_UHD.jpg) 
 
 2025-08-05 | [拉霍亚的潮汐池‌, 加利福尼亚州, 美国 (© Andrew Shoemaker/DanitaDelimont.com)](https://cn.bing.com/th?id=OHR.CaliforniaTidepool_ZH-CN6273815361_UHD.jpg) 
 
