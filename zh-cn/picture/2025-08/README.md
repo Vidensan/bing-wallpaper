@@ -1,5 +1,5 @@
 ## Bing Wallpaper (2025-08)
-![](https://cn.bing.com/th?id=OHR.GasparillaLight_ZH-CN6855683859_UHD.jpg&w=1000)Today: [加斯帕里拉岛灯塔后导标灯, 博卡格兰德, ��罗里达州, 美国 (© Wiltser/Getty Images)](https://cn.bing.com/th?id=OHR.GasparillaLight_ZH-CN6855683859_UHD.jpg)
+![](https://cn.bing.com/th?id=OHR.GasparillaLight_ZH-CN6855683859_UHD.jpg&w=1000)Today: [加斯帕里拉岛灯塔后导标灯, 博卡格兰德, 佛罗里达州, 美国 (© Wiltser/Getty Images)](https://cn.bing.com/th?id=OHR.GasparillaLight_ZH-CN6855683859_UHD.jpg)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.GasparillaLight_ZH-CN6855683859_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-08-07 [download 4k](https://cn.bing.com/th?id=OHR.GasparillaLight_ZH-CN6855683859_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.GasparillaLight_ZH-CN6855683859_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-08-07 [download 4k](https://cn.bing.com/th?id=OHR.GasparillaLight_ZH-CN6855683859_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.BabyLemur_ZH-CN6617977758_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-08-06 [download 4k](https://cn.bing.com/th?id=OHR.BabyLemur_ZH-CN6617977758_UHD.jpg)|
