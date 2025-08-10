@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://cn.bing.com/th?id=OHR.LionessKenya_ZH-CN6791029673_UHD.jpg&w=1000)Today: [马赛马拉国家保护区的雌狮,��尼亚 (© Tandem Stock/Adobe Stock)](https://cn.bing.com/th?id=OHR.LionessKenya_ZH-CN6791029673_UHD.jpg)
+![](https://cn.bing.com/th?id=OHR.LionessKenya_ZH-CN6791029673_UHD.jpg&w=1000)Today: [马赛马拉国家保护区的雌狮,肯尼亚 (© Tandem Stock/Adobe Stock)](https://cn.bing.com/th?id=OHR.LionessKenya_ZH-CN6791029673_UHD.jpg)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.LionessKenya_ZH-CN6791029673_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-08-10 [download 4k](https://cn.bing.com/th?id=OHR.LionessKenya_ZH-CN6791029673_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.LionessKenya_ZH-CN6791029673_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-08-10 [download 4k](https://cn.bing.com/th?id=OHR.LionessKenya_ZH-CN6791029673_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.MaoriRock_ZH-CN5614685493_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-08-09 [download 4k](https://cn.bing.com/th?id=OHR.MaoriRock_ZH-CN5614685493_UHD.jpg)|
