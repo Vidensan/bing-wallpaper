@@ -1,5 +1,5 @@
 ## Bing Wallpaper (2025-08)
-![](https://cn.bing.com/th?id=OHR.SantaMaddalena_ZH-CN7421083295_UHD.jpg&w=1000)Today: [圣玛格达莱娜, ���洛米蒂山, 意大利 (© Sakrapee Nopparat/Getty Images)](https://cn.bing.com/th?id=OHR.SantaMaddalena_ZH-CN7421083295_UHD.jpg)
+![](https://cn.bing.com/th?id=OHR.SantaMaddalena_ZH-CN7421083295_UHD.jpg&w=1000)Today: [圣玛格达莱娜, 多洛米蒂山, 意大利 (© Sakrapee Nopparat/Getty Images)](https://cn.bing.com/th?id=OHR.SantaMaddalena_ZH-CN7421083295_UHD.jpg)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.SantaMaddalena_ZH-CN7421083295_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-08-11 [download 4k](https://cn.bing.com/th?id=OHR.SantaMaddalena_ZH-CN7421083295_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.SantaMaddalena_ZH-CN7421083295_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-08-11 [download 4k](https://cn.bing.com/th?id=OHR.SantaMaddalena_ZH-CN7421083295_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.LionessKenya_ZH-CN6791029673_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-08-10 [download 4k](https://cn.bing.com/th?id=OHR.LionessKenya_ZH-CN6791029673_UHD.jpg)|
