@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://cn.bing.com/th?id=OHR.CoronaArch_ZH-CN5406267193_UHD.jpg&w=1000)Today: [一名男子从摩押��近的科罗纳拱门索降, 美国 (© Grant Ordelheide/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.CoronaArch_ZH-CN5406267193_UHD.jpg)
+![](https://cn.bing.com/th?id=OHR.CoronaArch_ZH-CN5406267193_UHD.jpg&w=1000)Today: [一名男子从摩押附近的科罗纳拱门索降, 美国 (© Grant Ordelheide/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.CoronaArch_ZH-CN5406267193_UHD.jpg)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.CoronaArch_ZH-CN5406267193_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-08-13 [download 4k](https://cn.bing.com/th?id=OHR.CoronaArch_ZH-CN5406267193_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.CoronaArch_ZH-CN5406267193_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-08-13 [download 4k](https://cn.bing.com/th?id=OHR.CoronaArch_ZH-CN5406267193_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.KenyaElephants_ZH-CN7587207512_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-08-12 [download 4k](https://cn.bing.com/th?id=OHR.KenyaElephants_ZH-CN7587207512_UHD.jpg)|
