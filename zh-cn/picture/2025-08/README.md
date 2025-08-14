@@ -1,5 +1,5 @@
 ## Bing Wallpaper (2025-08)
-![](https://cn.bing.com/th?id=OHR.SpottedEagleRay_ZH-CN9894613260_UHD.jpg&w=1000)Today: [斑点鹞鲼，圣���里斯托瓦尔岛‌，‌加拉帕戈斯群岛，厄瓜多尔 (© Tui De Roy/Minden Pictures)](https://cn.bing.com/th?id=OHR.SpottedEagleRay_ZH-CN9894613260_UHD.jpg)
+![](https://cn.bing.com/th?id=OHR.SpottedEagleRay_ZH-CN9894613260_UHD.jpg&w=1000)Today: [斑点鹞鲼，圣克里斯托瓦尔岛‌，‌加拉帕戈斯群岛，厄瓜多尔 (© Tui De Roy/Minden Pictures)](https://cn.bing.com/th?id=OHR.SpottedEagleRay_ZH-CN9894613260_UHD.jpg)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.SpottedEagleRay_ZH-CN9894613260_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-08-15 [download 4k](https://cn.bing.com/th?id=OHR.SpottedEagleRay_ZH-CN9894613260_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.SpottedEagleRay_ZH-CN9894613260_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-08-15 [download 4k](https://cn.bing.com/th?id=OHR.SpottedEagleRay_ZH-CN9894613260_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.PizNairPeak_ZH-CN8209144138_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-08-14 [download 4k](https://cn.bing.com/th?id=OHR.PizNairPeak_ZH-CN8209144138_UHD.jpg)|
