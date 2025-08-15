@@ -1,7 +1,7 @@
 ## Bing Wallpaper
-2025-08-15 | [斑点鹞鲼，圣克里斯托瓦尔岛‌，‌加拉帕戈斯群岛，厄���多尔 (© Tui De Roy/Minden Pictures)](https://cn.bing.com/th?id=OHR.SpottedEagleRay_ZH-CN9894613260_UHD.jpg) 
-
 2025-08-15 | [斑点鹞鲼，圣克里斯托瓦尔岛‌，‌加拉帕戈斯群岛，厄瓜多尔 (© Tui De Roy/Minden Pictures)](https://cn.bing.com/th?id=OHR.SpottedEagleRay_ZH-CN9894613260_UHD.jpg) 
+
+2025-08-15 | [斑点鹞鲼，圣克里斯托瓦尔岛‌，‌加拉帕戈斯群岛，厄���多尔 (© Tui De Roy/Minden Pictures)](https://cn.bing.com/th?id=OHR.SpottedEagleRay_ZH-CN9894613260_UHD.jpg) 
 
 2025-08-15 | [斑点鹞鲼，圣���里斯托瓦尔岛‌，‌加拉帕戈斯群岛，厄瓜多尔 (© Tui De Roy/Minden Pictures)](https://cn.bing.com/th?id=OHR.SpottedEagleRay_ZH-CN9894613260_UHD.jpg) 
 
