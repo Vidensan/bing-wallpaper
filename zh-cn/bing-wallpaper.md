@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-02 | [骆驼刺树, 死亡谷, 纳米布-诺克卢福国家公园, ���米比亚 (© Inge Johnsson/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.DeadvleiTrees_ZH-CN0967414858_UHD.jpg) 
+
 2025-09-02 | [骆驼刺树, 死亡谷, 纳米布-诺克卢福国家公园, 纳米比亚 (© Inge Johnsson/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.DeadvleiTrees_ZH-CN0967414858_UHD.jpg) 
 
 2025-09-02 | [骆驼刺树, ��亡谷, 纳米布-诺克卢福国家公园, 纳米比亚 (© Inge Johnsson/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.DeadvleiTrees_ZH-CN0967414858_UHD.jpg) 
