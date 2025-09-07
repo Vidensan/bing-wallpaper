@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-08 | [乌节图书馆，新加坡 (© Darwin Fan/Getty Images)](https://cn.bing.com/th?id=OHR.OrchardLibrary_ZH-CN3578982798_UHD.jpg) 
+
 2025-09-07 | [位于莫特拉瓦河河畔的格但斯克市，波兰 (© Oscar Dominguez/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.BlueGdansk_ZH-CN3328928509_UHD.jpg) 
 
 2025-09-07 | [位于莫特拉瓦河河畔��格但斯克市，波兰 (© Oscar Dominguez/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.BlueGdansk_ZH-CN3328928509_UHD.jpg) 
