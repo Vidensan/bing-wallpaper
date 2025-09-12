@@ -1,7 +1,7 @@
 ## Bing Wallpaper
-2025-09-13 | [烟囱岩, 雷斯岬国家海岸, 加利福尼亚州, 美国 (© Enrique Aguirre Aves/Getty Images)](https://cn.bing.com/th?id=OHR.PointReyesSeashore_ZH-CN0076789582_UHD.jpg) 
-
 2025-09-13 | [烟囱岩, ��斯岬国家海岸, 加利福尼亚州, 美国 (© Enrique Aguirre Aves/Getty Images)](https://cn.bing.com/th?id=OHR.PointReyesSeashore_ZH-CN0076789582_UHD.jpg) 
+
+2025-09-13 | [烟囱岩, 雷斯岬国家海岸, 加利福尼亚州, 美国 (© Enrique Aguirre Aves/Getty Images)](https://cn.bing.com/th?id=OHR.PointReyesSeashore_ZH-CN0076789582_UHD.jpg) 
 
 2025-09-12 | [红海中的飞旋海豚群, 阿拉姆港, 埃及 (© Franco Banfi/Nature Picture Library)](https://cn.bing.com/th?id=OHR.SpinnerDolphins_ZH-CN9731341241_UHD.jpg) 
 
