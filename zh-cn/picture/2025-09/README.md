@@ -1,5 +1,5 @@
 ## Bing Wallpaper (2025-09)
-![](https://cn.bing.com/th?id=OHR.PointReyesSeashore_ZH-CN0076789582_UHD.jpg&w=1000)Today: [烟囱岩, ��斯岬国家海岸, 加利福尼亚州, 美国 (© Enrique Aguirre Aves/Getty Images)](https://cn.bing.com/th?id=OHR.PointReyesSeashore_ZH-CN0076789582_UHD.jpg)
+![](https://cn.bing.com/th?id=OHR.PointReyesSeashore_ZH-CN0076789582_UHD.jpg&w=1000)Today: [烟囱岩, 雷斯岬国家海岸, 加利福尼亚州, 美国 (© Enrique Aguirre Aves/Getty Images)](https://cn.bing.com/th?id=OHR.PointReyesSeashore_ZH-CN0076789582_UHD.jpg)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.PointReyesSeashore_ZH-CN0076789582_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-09-13 [download 4k](https://cn.bing.com/th?id=OHR.PointReyesSeashore_ZH-CN0076789582_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.PointReyesSeashore_ZH-CN0076789582_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-09-13 [download 4k](https://cn.bing.com/th?id=OHR.PointReyesSeashore_ZH-CN0076789582_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.SpinnerDolphins_ZH-CN9731341241_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-09-12 [download 4k](https://cn.bing.com/th?id=OHR.SpinnerDolphins_ZH-CN9731341241_UHD.jpg)|
