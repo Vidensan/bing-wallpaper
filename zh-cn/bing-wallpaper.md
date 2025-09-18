@@ -1,7 +1,7 @@
 ## Bing Wallpaper
-2025-09-18 | [邓金码头的蛇形��梯, 凯里郡, 爱尔兰 (© Hugh O'Connor/Getty Images)](https://cn.bing.com/th?id=OHR.DunquinIreland_ZH-CN1418844818_UHD.jpg) 
-
 2025-09-18 | [邓金码头的蛇形楼梯, 凯里郡, 爱尔兰 (© Hugh O'Connor/Getty Images)](https://cn.bing.com/th?id=OHR.DunquinIreland_ZH-CN1418844818_UHD.jpg) 
+
+2025-09-18 | [邓金码头的蛇形��梯, 凯里郡, 爱尔兰 (© Hugh O'Connor/Getty Images)](https://cn.bing.com/th?id=OHR.DunquinIreland_ZH-CN1418844818_UHD.jpg) 
 
 2025-09-17 | [迪纳利国家公园中的一头年轻雄性驼鹿, 阿拉斯加, 美国 (© Grant Ordelheide/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.YoungMoose_ZH-CN4639410217_UHD.jpg) 
 
