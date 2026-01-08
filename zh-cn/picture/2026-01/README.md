@@ -1,5 +1,5 @@
 ## Bing Wallpaper (2026-01)
-![](https://cn.bing.com/th?id=OHR.MuirWoodsMonument_ZH-CN2985538001_UHD.jpg&w=1000)Today: [缪尔树林国家保护区的巨型红杉树林, ��利福尼亚州, 美国 (© photo by canderson/Getty Images)](https://cn.bing.com/th?id=OHR.MuirWoodsMonument_ZH-CN2985538001_UHD.jpg)
+![](https://cn.bing.com/th?id=OHR.MuirWoodsMonument_ZH-CN2985538001_UHD.jpg&w=1000)Today: [缪尔树林国家保护区的巨型红杉树林, 加利福尼亚州, 美国 (© photo by canderson/Getty Images)](https://cn.bing.com/th?id=OHR.MuirWoodsMonument_ZH-CN2985538001_UHD.jpg)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.MuirWoodsMonument_ZH-CN2985538001_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-01-09 [download 4k](https://cn.bing.com/th?id=OHR.MuirWoodsMonument_ZH-CN2985538001_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.MuirWoodsMonument_ZH-CN2985538001_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-01-09 [download 4k](https://cn.bing.com/th?id=OHR.MuirWoodsMonument_ZH-CN2985538001_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.StarlingBrighton2025_ZH-CN2775446092_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-01-08 [download 4k](https://cn.bing.com/th?id=OHR.StarlingBrighton2025_ZH-CN2775446092_UHD.jpg)|
