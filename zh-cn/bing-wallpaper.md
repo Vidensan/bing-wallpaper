@@ -1,7 +1,7 @@
 ## Bing Wallpaper
-2026-01-29 | [密��沃基市政厅的八层开放式中庭，威斯康星州，美国 (© lavin photography/Getty Images)](https://cn.bing.com/th?id=OHR.MilwaukeeHall_ZH-CN5779477975_UHD.jpg) 
-
 2026-01-29 | [密尔沃基市政厅的八层开放式中庭，威斯康星州，美国 (© lavin photography/Getty Images)](https://cn.bing.com/th?id=OHR.MilwaukeeHall_ZH-CN5779477975_UHD.jpg) 
+
+2026-01-29 | [密��沃基市政厅的八层开放式中庭，威斯康星州，美国 (© lavin photography/Getty Images)](https://cn.bing.com/th?id=OHR.MilwaukeeHall_ZH-CN5779477975_UHD.jpg) 
 
 2026-01-28 | [旺格努伊国家公园，雷塔鲁克，新西兰 (© Matthew Micah Wright/Getty Images)](https://cn.bing.com/th?id=OHR.WhanganuiPark_ZH-CN5664518836_UHD.jpg) 
 
