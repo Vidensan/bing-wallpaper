@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-30 | [马拉齐翁的圣迈克尔山, 康沃尔郡, 英格兰 (© Baxter Bradford/robertharding/Getty Images)](https://cn.bing.com/th?id=OHR.StMichaelsCornwall_ZH-CN5878042411_UHD.jpg) 
+
 2026-01-29 | [密尔沃基市政厅的八层开放式中庭，威斯康星州，美国 (© lavin photography/Getty Images)](https://cn.bing.com/th?id=OHR.MilwaukeeHall_ZH-CN5779477975_UHD.jpg) 
 
 2026-01-29 | [密��沃基市政厅的八层开放式中庭，威斯康星州，美国 (© lavin photography/Getty Images)](https://cn.bing.com/th?id=OHR.MilwaukeeHall_ZH-CN5779477975_UHD.jpg) 
