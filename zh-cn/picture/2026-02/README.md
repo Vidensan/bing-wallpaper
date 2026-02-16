@@ -1,5 +1,5 @@
 ## Bing Wallpaper (2026-02)
-![](https://cn.bing.com/th?id=OHR.SpringFestivalY26_ZH-CN0228318064_UHD.jpg&w=1000)Today: [中国春节传统汉字“福” (© DuKai���影师/Getty Images)](https://cn.bing.com/th?id=OHR.SpringFestivalY26_ZH-CN0228318064_UHD.jpg)
+![](https://cn.bing.com/th?id=OHR.SpringFestivalY26_ZH-CN0228318064_UHD.jpg&w=1000)Today: [中国春节传统汉字“福” (© DuKai摄影师/Getty Images)](https://cn.bing.com/th?id=OHR.SpringFestivalY26_ZH-CN0228318064_UHD.jpg)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.SpringFestivalY26_ZH-CN0228318064_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-02-17 [download 4k](https://cn.bing.com/th?id=OHR.SpringFestivalY26_ZH-CN0228318064_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.SpringFestivalY26_ZH-CN0228318064_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-02-17 [download 4k](https://cn.bing.com/th?id=OHR.SpringFestivalY26_ZH-CN0228318064_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.ChineseNewYearEveY26_ZH-CN7770318975_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-02-16 [download 4k](https://cn.bing.com/th?id=OHR.ChineseNewYearEveY26_ZH-CN7770318975_UHD.jpg)|
