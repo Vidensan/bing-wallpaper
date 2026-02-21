@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://cn.bing.com/th?id=OHR.TetonFox_EN-US2616700325_UHD.jpg&w=1000)Today: [Red fox standing in snowfall, Grand Teton National Park, Wyoming (�� Radomir Jakubowski/naturepl.com)](https://cn.bing.com/th?id=OHR.TetonFox_EN-US2616700325_UHD.jpg)
+![](https://cn.bing.com/th?id=OHR.TetonFox_EN-US2616700325_UHD.jpg&w=1000)Today: [Red fox standing in snowfall, Grand Teton National Park, Wyoming (© Radomir Jakubowski/naturepl.com)](https://cn.bing.com/th?id=OHR.TetonFox_EN-US2616700325_UHD.jpg)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.TetonFox_EN-US2616700325_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-02-22 [download 4k](https://cn.bing.com/th?id=OHR.TetonFox_EN-US2616700325_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.TetonFox_EN-US2616700325_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-02-22 [download 4k](https://cn.bing.com/th?id=OHR.TetonFox_EN-US2616700325_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.AdamsFirefall_EN-US2580399078_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-02-21 [download 4k](https://cn.bing.com/th?id=OHR.AdamsFirefall_EN-US2580399078_UHD.jpg)|
