@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://cn.bing.com/th?id=OHR.GrandSunset_ZH-CN1905986519_UHD.jpg&w=1000)Today: [大峡谷和科罗拉多河，���利桑那州，美国 (© Matt Anderson Photography/Getty Images)](https://cn.bing.com/th?id=OHR.GrandSunset_ZH-CN1905986519_UHD.jpg)
+![](https://cn.bing.com/th?id=OHR.GrandSunset_ZH-CN1905986519_UHD.jpg&w=1000)Today: [大峡谷和科罗拉多河，亚利桑那州，美国 (© Matt Anderson Photography/Getty Images)](https://cn.bing.com/th?id=OHR.GrandSunset_ZH-CN1905986519_UHD.jpg)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.GrandSunset_ZH-CN1905986519_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-02-26 [download 4k](https://cn.bing.com/th?id=OHR.GrandSunset_ZH-CN1905986519_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.GrandSunset_ZH-CN1905986519_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-02-26 [download 4k](https://cn.bing.com/th?id=OHR.GrandSunset_ZH-CN1905986519_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.MendenhallCave_ZH-CN1850649760_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-02-25 [download 4k](https://cn.bing.com/th?id=OHR.MendenhallCave_ZH-CN1850649760_UHD.jpg)|
