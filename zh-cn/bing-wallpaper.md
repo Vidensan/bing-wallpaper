@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-26 | [大峡谷和科罗拉多河，���利桑那州，美国 (© Matt Anderson Photography/Getty Images)](https://cn.bing.com/th?id=OHR.GrandSunset_ZH-CN1905986519_UHD.jpg) 
+
 2026-02-26 | [大峡谷和科罗拉多河，亚利桑那州，美国 (© Matt Anderson Photography/Getty Images)](https://cn.bing.com/th?id=OHR.GrandSunset_ZH-CN1905986519_UHD.jpg) 
 
 2026-02-25 | [门登霍尔冰川的冰洞，阿拉斯加州，美国 (© Designpics/Adobe Stock)](https://cn.bing.com/th?id=OHR.MendenhallCave_ZH-CN1850649760_UHD.jpg) 
