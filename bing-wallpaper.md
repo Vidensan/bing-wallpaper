@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-12 | [Peach trees in bloom, Cieza, Murcia, Spain (© Juan Maria Coy Vergara/Getty Images)](https://cn.bing.com/th?id=OHR.PeachBloom_EN-US6957157989_UHD.jpg) 
+
 2026-03-11 | [Geothermal blue pool Bláhver at Hveravellir, Iceland (© Juan Maria Coy Vergara/Getty Images)](https://cn.bing.com/th?id=OHR.SpringIceland_EN-US6846318257_UHD.jpg) 
 
 2026-03-11 | [Geothermal blue pool Bláhver at Hveravellir, Iceland (�� Juan Maria Coy Vergara/Getty Images)](https://cn.bing.com/th?id=OHR.SpringIceland_EN-US6846318257_UHD.jpg) 
