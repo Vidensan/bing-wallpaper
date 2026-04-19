@@ -1,5 +1,5 @@
 ## Bing Wallpaper (2026-04)
-![](https://cn.bing.com/th?id=OHR.LibraryWeek_EN-US0888768835_UHD.jpg&w=1000)Today: [Books in the children's section of The New York Public Library, New York (�� Ken Welsh/Alamy)](https://cn.bing.com/th?id=OHR.LibraryWeek_EN-US0888768835_UHD.jpg)
+![](https://cn.bing.com/th?id=OHR.LibraryWeek_EN-US0888768835_UHD.jpg&w=1000)Today: [Books in the children's section of The New York Public Library, New York (© Ken Welsh/Alamy)](https://cn.bing.com/th?id=OHR.LibraryWeek_EN-US0888768835_UHD.jpg)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.LibraryWeek_EN-US0888768835_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-04-20 [download 4k](https://cn.bing.com/th?id=OHR.LibraryWeek_EN-US0888768835_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.LibraryWeek_EN-US0888768835_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-04-20 [download 4k](https://cn.bing.com/th?id=OHR.LibraryWeek_EN-US0888768835_UHD.jpg)|![](https://cn.bing.com/th?id=OHR.MaoiStatues_EN-US0752877903_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-04-19 [download 4k](https://cn.bing.com/th?id=OHR.MaoiStatues_EN-US0752877903_UHD.jpg)|
