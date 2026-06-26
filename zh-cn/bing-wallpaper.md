@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-27 | [博尼亚德海滩上的漂流木, 亨廷岛, 南卡罗来纳州, 美国 (© Frances/Adobe Stock)](https://cn.bing.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_UHD.jpg) 
+
 2026-06-27 | [博尼亚德海滩上的漂流木, 亨廷岛, 南卡罗来纳���, 美国 (© Frances/Adobe Stock)](https://cn.bing.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_UHD.jpg) 
 
 2026-06-26 | [泰晤士河, 伦敦, 英格兰 (© Daniel Lange/Getty Images)](https://cn.bing.com/th?id=OHR.ThamesSummer_ZH-CN5292532714_UHD.jpg) 
